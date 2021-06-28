@@ -1,3 +1,8 @@
+---
+title: "Healthy Habit Rituals"
+date: 2021-06-28
+---
+
 Welcome to the Healthiest YOU, a 10 Part Series to EMPOWER YOU to create HEALTHY HABITS and eliminate ones that compromise your health and well-being.
 
 PART 1 –  Inflammatory Foods to Eliminate from your dietinflam
